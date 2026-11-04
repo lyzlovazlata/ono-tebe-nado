@@ -1,1 +1,1 @@
-https://github.com/lyzlovazlata/ono-tebe-nado-ad
+https://github.com/lyzlovazlata/ono-tebe-nado
